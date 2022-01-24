@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ESSPRADEEP05
 - 👀 I’m interested in developing newer technologies 
 - 🌱 I’m currently learning btech 1st year computer science engineering student 
-- 💞️ I’m looking to collaborate on the best company by the time of my graduation(2025)
+- 💞️ I’m looking to collaborate with the best company by the time of my graduation(2025)
 - 📫 How to reach me ...9110797340
 
 <!---
